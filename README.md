@@ -9,7 +9,7 @@
 
 - ⁺˚⋆୭🌸⋆⁺ Projects **Portfolio**
 
-- 💗ྀི I'm starting movie reviews [https://lexasmovies.carrd.co/](https://lexasmovies.carrd.co/)
+- 💗ྀི I'm starting movie reviews [https://lexasmovies.com/](https://lexasmovies.com/)
 
 - 𓍢ִ໋🌷͙֒𓍼 Ask me about **My animals and hobbies**
 
